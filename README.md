@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Ares Ersya Sanggoro, [ares.org](https://ares.org).
+* Aes Saputra, [aessaputra.net](https://www.aessaputra.net).
